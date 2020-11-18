@@ -1,0 +1,1 @@
+First boil water, then add the noddles, lastly put some of your fav extra falavors.
